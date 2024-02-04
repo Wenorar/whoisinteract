@@ -1,3 +1,4 @@
+![cute-non-binary-with-text-heart-cartoon-seamless-vector-30780232](https://github.com/whoisinteract/whoisinteract/assets/158013433/3515ff6e-609c-45bb-aff9-f5ff7dcbf987)
 ![PngItem_4722639](https://github.com/whoisinteract/whoisinteract/assets/158013433/e0be3bfe-8fac-44a5-9bf7-31fe550e6211)
 ![PngItem_5784829](https://github.com/whoisinteract/whoisinteract/assets/158013433/0117fb92-e3c0-4d0f-ad90-95e94991712c)
 ![floppy-disk-80s-90s-it-japanese-aesthetic-bastav](https://github.com/whoisinteract/whoisinteract/assets/158013433/f37e9741-d4f0-4401-a51e-a51c7416283a)
