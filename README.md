@@ -1,6 +1,5 @@
 hello. i am interact, i play ponytown and my pronouns are they/them, my zodiac is a capricorn. i used to play roblox but i didn't have enough storage for that. you probably want a qna so, here. q: why is your name interact? a: you have to read before you interact. the last group of letters are my inspiration for my name. q: do you host rps? a: i used to, but i usually get a few members to my roleplay. q: why do you play ponytown? a: it's an alternative of roblox, but it's pixel ponies. this is where i can make skins to encourage people of their liking. and there are also no ads. and no currency, you don't have to pay to get some items, except for supporter. q: who made the art for your pfp? a: myself, i used ibispaint x (prime) to draw the pfp, i used the dot brush to draw with the pixel artstyle, you can look closely on my pfp that there is a watermark of myself.
 ![3ohhwiWa2C60XsJCa4](https://github.com/whoisinteract/whoisinteract/assets/158013433/c68cbd8e-95e7-4fca-9c57-2d35bd47e5d6)
-
 ![eH3yTE7OfOnDCnpfr5](https://github.com/whoisinteract/whoisinteract/assets/158013433/bdce0fc0-c587-457a-9530-b329653eb498)
 ![gioLPAqDRZjzYpmuCp](https://github.com/whoisinteract/whoisinteract/assets/158013433/ea1cceb7-e033-40bf-ac2f-c4b2e9154ebd)
 ![YkuzftfzdoPOE](https://github.com/whoisinteract/whoisinteract/assets/158013433/4fdf8e75-a4dd-4e0f-a9c5-4355ea7fa6d7)
