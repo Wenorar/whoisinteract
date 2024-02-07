@@ -1,6 +1,7 @@
 ![love-divider](https://github.com/whoisinteract/whoisinteract/assets/158013433/41136b91-cea8-4dfd-a1fb-ac365490aef7)
 
 hi im a they/them stfu anti-lgbtq sigma dni list is on my patreon
+![d49542b6-2cad-4ce8-a740-f7e9015e3bc3](https://github.com/whoisinteract/whoisinteract/assets/158013433/b08b701d-66ad-42ea-b378-248ae684e712)
 
 ![whatsyourgender-gender-no-epic-epicgender-nogender](https://github.com/whoisinteract/whoisinteract/assets/158013433/4332f012-1d48-4bb3-95d0-af728c14a12a)
 
